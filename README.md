@@ -4,5 +4,4 @@
 
 ### 📫 联系方式
 
-- **QQ：2547828133**
-- **邮箱：gpuawa@qq.com**
+- **邮箱：gpuawa@gmail.com**
